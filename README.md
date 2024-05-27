@@ -100,8 +100,6 @@
 
 Τα συμπεράσματα δικά σας...
 
-https://youtu.be/HDn0GSTBZU0?feature=shared
-
 https://youtu.be/HDn0GSTBZU0
 
 
